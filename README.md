@@ -14,6 +14,8 @@
 * LAB의 __딸기주스는 맛있다__
 * https://seoularts.ac.kr
 
+<hr>
+
 ### 나는 박경주
 * 서울예술대학교 디아과 22학번
-* * *아악
+* https://blog.naver.com/anauddl414
